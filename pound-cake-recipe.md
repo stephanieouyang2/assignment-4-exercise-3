@@ -4,4 +4,5 @@
 4. Mix until combined
 5. Bake at 350 degrees for 70 minutes
 6. Take it out of the oven and let cool
+7. Cut into it
 
